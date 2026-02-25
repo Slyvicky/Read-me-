@@ -1,1 +1,1 @@
-# | ` Extra stuff if youd like to stick around me! ` |
+    ˖ ࣪.⭑ How ridiculous of me for wanting to understand others when I refuse to even understand myself ࿐🌧˚.
